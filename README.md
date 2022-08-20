@@ -1,6 +1,6 @@
 🌐 ¡Hola mundo!
 
-👋 Me llamo CRISTIAN!
+👋 Somos Matias y  CRISTIAN!
 🗺️ y actualmente estoy en _COMPLETAR_.
 
-📆 En los próximos días, me gustaría _COMPLETAR_.
+📆 En los próximos días, me gustaría hurlingham.
